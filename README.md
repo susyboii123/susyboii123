@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @susyboii123
+- 👀 I’m interested in minecraft and video games
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on certin projectts
+- 📫 How to reach me my Gmail - sussyboiii652@Gmail.com
